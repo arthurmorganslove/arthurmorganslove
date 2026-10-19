@@ -19,7 +19,9 @@ Here's some more evidence, once again we think were sent by Coal-Bobette. (Also 
 <img width="427" height="132" alt="image" src="https://github.com/user-attachments/assets/2154cb22-d646-4d04-a1cb-3cae3c606a1a" />
 <img width="424" height="116" alt="image" src="https://github.com/user-attachments/assets/a309f646-1cf4-4160-8142-cd194dc854a2" />
 
-"I'd just kms" "Or kys" "I hope you cut deeper". Seriously what the fuck? These types of messages were being spammed on Cody's ATAbook. 
+"I'd just kms" "Or kys" "I hope you cut deeper". Seriously what the fuck? These types of messages were being spammed on Cody's ATAbook. None of these are faked, or sent by us. We would NEVER joke about this stuff, nor frame other people for saying things like this without reason, because it's seriously sickening.
+
+https://infestedcorpse.atabook.org/ IF you want to look into it yourself.
 
 
 
