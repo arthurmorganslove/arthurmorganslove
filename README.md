@@ -80,4 +80,4 @@ UPDATE 1
 
 I will not change anything I wrote because that will take a lot of effort and work and will lead to me getting burnt out quickly, but I will add these updates as soon as they happen.
 
-1) Bobette had nothing to do with the death threats/cutting statements. They signed my ATA, admitted that they did talk about wlf in that way in public but did not send any of those disgusting messages. Cody and I are in the process of comparing the IP's now. They stated they will, on their end, drop this case for good. The case is not resolved completely but we are one step closer. Thank you.
+Not much to add as of right now. Bobette is completely in the clear and did not send anything to Cody, except for a very sweet apology.
