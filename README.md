@@ -53,6 +53,8 @@ My response
 It really fucking breaks my heart that wlf just replied with, 'but people won't listen'. Everyone who's said shit to wlf seriously got to wlf. I hope you all realize that now and reflect, because it seriously makes me sick and even more protective. If you read all these and still have shit to say, I don't have words. Block me, and Cody.
 
 
+This is another thing said by another friend who chose to stay anon (Plus is paraphrased), don't try to get us reveal who this was, I feel like it's a great point and deserves to be on here. 'It's funny because the fact that Cody is getting harassed for yuming with Gourdy is showing people caring for a fictional character over a real pup like wdym you're prioritizing a pumpkin over someone coping whether you find it weird or not'
+
 
 
 
