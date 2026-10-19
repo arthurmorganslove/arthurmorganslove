@@ -66,3 +66,10 @@ It really fucking breaks my heart that wlf just replied with, 'but people won't 
 
 
 This is another thing said by another friend who chose to stay anon (Plus is paraphrased), don't try to get us reveal who this was, I feel like it's a great point and deserves to be on here. 'It's funny because the fact that Cody is getting harassed for yuming with Gourdy is showing people caring for a fictional character over a real person, like wdym you're prioritizing a pumpkin over someone coping whether you find it weird or not'
+
+
+UPDATE 1
+
+I will not change anything I wrote because that will take a lot of effort and work and will lead to me getting burnt out quickly, but I will add these updates as soon as they happen.
+
+1) Bobette had nothing to do with the death threats/cutting statements. They signed my ATA, admitted that they did talk about wlf in that way in public but did not send any of those disgusting messages. Cody and I are in the process of comparing the IP's now. They stated they will, on their end, drop this case for good. The case is not resolved completely but we are one step closer. Thank you.
