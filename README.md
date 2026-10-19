@@ -15,6 +15,16 @@ Do not harass wlf on wlf’s Atabook, because wlf does not owe you an explinatio
 
 Case 2: coalcarolynne , death threats
 
+Before all the coal drama I want to address this one thing. 
+
+<img width="423" height="109" alt="image" src="https://github.com/user-attachments/assets/26c6ddf2-812d-4c46-b968-23c658b30ec7" />
+
+Someone whispered this to Cody. They didn't have a github, but here was their player tag.
+
+<img width="386" height="113" alt="image" src="https://github.com/user-attachments/assets/368edfaf-8c16-4854-a085-e9442293fd3f" />
+
+
+
 Below is a message sent by who I'm sure is one of Coal's goons, on Coal's ATA
 
 'wait people can't differentiate telling someone to hop off the game versus telling them to commit and kill themself??!?!?!?!?!  ... wow it's like pony town is the stupidest game out there, because it is. don't listen to these people ...... god bro people are just making shit up omg'
@@ -26,6 +36,7 @@ Below is a whisper Coal sent to Cody on PonyTown. This one was, 100%, Coal. So e
 
 
 <img width="1242" height="270" alt="IMG_8540" src="https://github.com/user-attachments/assets/736d8d77-8245-408f-b144-6a355abc2ad7" /><img width="1065" height="488" alt="IMG_8553" src="https://github.com/user-attachments/assets/13ef754e-6935-4e33-8b5c-ef15af2761ac" />
+
 
 
 
