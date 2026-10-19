@@ -2,5 +2,7 @@ Hey. I’m gonna address some stuff here because there’s genuinely unbelievabl
 
 'wait people can't differentiate telling someone to hop off the game versus telling them to commit and kill themself??!?!?!?!?!  ... wow it's like pony town is the stupidest game out there, because it is. don't listen to these people ...... god bro people are just making shit up omg'
 
-yeah ok lmfao<img width="1242" height="270" alt="IMG_8540" src="https://github.com/user-attachments/assets/736d8d77-8245-408f-b144-6a355abc2ad7" />
+yeah ok lmfao<img width="1242" height="270" alt="IMG_8540" src="https://github.com/user-attachments/assets/736d8d77-8245-408f-b144-6a355abc2ad7" /><img width="1065" height="488" alt="IMG_8553" src="https://github.com/user-attachments/assets/13ef754e-6935-4e33-8b5c-ef15af2761ac" />
+<img width="1105" height="305" alt="IMG_8552" src="https://github.com/user-attachments/assets/1c803457-ecb1-4644-8ef6-64238be7fd1b" />
+
 
