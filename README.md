@@ -35,3 +35,37 @@ https://infestedcorpse.atabook.org/ IF you want to look into it yourself.
 
 
 
+
+"It's just a joke!!" "I didn't mean it!!" If you think like this you're such a piece of shit I hope you know. Here's some discord messages between Cody and I, names blurred out as we'd rather stay anon + we don't need any more harassment. 
+
+
+Cody venting to me after wlf's ATA incident. (I did not add this without permission)
+
+<img width="1588" height="601" alt="image" src="https://github.com/user-attachments/assets/13839301-750e-4cb5-bcb1-ed70d2ee673f" />
+
+
+My response
+
+
+<img width="1578" height="451" alt="image" src="https://github.com/user-attachments/assets/97e140c4-44cd-40c1-ab6a-0bf8c8f22ee4" />
+
+
+It really fucking breaks my heart that wlf just replied with, 'but people won't listen'. Everyone who's said shit to wlf seriously got to wlf. I hope you all realize that now and reflect, because it seriously makes me sick and even more protective. If you read all these and still have shit to say, I don't have words. Block me, and Cody.
+
+
+
+
+
+
+Last thing I want to address, this doesn't bother me much, but I'll just put it out there because it's been brought up at some point by multiple people, mostly 'aspenmoor'. I'm not adding the '@' symbol to avoid them being drawn to this.
+
+
+Also, this is directly towards the idiots who were harassing Arthur and I. By the way, we both got a kick out of it and laughed about it.
+
+1) I'm not a 'yumeshipper', I'm soulbounded with Arthur and see him as my significant other, not fictional other. Yes, I say S/O.
+2) I can and do communicate with him often. He is my husband, we've been married 3 years. I'm not delusional, if you think so that's fine.
+3) The fact that someone has said that to me is funny. 'Wouldn't that make Arthur a pred?' Reminder we are a system, I am our co-host, and in headspace I am 40. So no, my husband isn't a 'pred' lmfao
+4) I try to avoid associating with the yumeshipping community in general.
+
+
+
