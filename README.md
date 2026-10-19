@@ -1,4 +1,4 @@
-These two are faking clips of me while i'm asleep' Hey Coal if you're reading this how about you read my part instead of being a fucking coward and framing us for shit we DIDN'T do. But you probably won't, because you're so closed minded and pathetic.<img width="120" height="109" alt="image" src="https://github.com/user-attachments/assets/905a849b-6c54-4635-93e2-585327c28531" />
+'These two are faking clips of me while i'm asleep' Hey Coal if you're reading this how about you read my part instead of being a fucking coward and framing us for shit we DIDN'T do. But you probably won't, because you're so closed minded and pathetic.<img width="120" height="109" alt="image" src="https://github.com/user-attachments/assets/905a849b-6c54-4635-93e2-585327c28531" />
 
 
 
