@@ -1,11 +1,19 @@
-'These two are faking clips of me while i'm asleep' Hey Coal if you're reading this how about you read my part and address itinstead of being a fucking coward and framing us for shit we DIDN'T do. But you probably won't, because you're so closed minded and pathetic.
-
-
-
+Coal or anyone else please contact me if you have an issue with any of this. I will not remove anything until I'm given proper evidence regarding someone's evidence in this case.
 
 Let me start by saying I hate that I even need to make my account revolving around this. I never thought I'd be sucked so deeply into drama like this. But it got to a point where I had to step in, and got myself into all this. I do not regret it, though. Here's our side of the story. (Our, as in Jevil-Chester and Cody).
 
-Hey. I’m gonna address some stuff here because there’s genuinely unbelievable shit going on in this dumb fucking pony game. Firstly and most importantly, my friend Cody. So many people are mad at me for defending wlf, for multiple reasons. The primary being that wlf yumeships with Gourdy. This is an alternate universe of Gourdy, where he is aged up. ‘That doesn’t make it okay,’ or ‘That’s pred behavior’ are lots of things that have been said to us. You’re entitled to your own beliefs. But I believe that there’s no issue with it. At first I’ll admit I did find it a bit odd and did not like it, but I got to know wlf better and understand wlf’s reasoning, and it helped me realize that one, the way wlf chooses to cope is none of my business and is not harming anyone, and two, is not ‘pred behavior’ based off the circumstances. Unfortunately this isn’t the only issue people have with wlf. Another thing people are angry about is that wlf is a diagnosed para/zoo. It’s so sickening to me that wlf has been so harassed over this. Before anyone comes at me about how it’s weird how I’m supporting a zoo, I want them to know two things. Firstly, it’s fucking weird to harass someone and send them death threats and shit based off of their mental state. I’m typing this on my phone, but I’ll put some evidence of this later on. Secondly, I do not think it is okay to be a zoo. IF YOU ARE NOT WORKING ON RECOVERING. Yes, Cody was diagnosed. Yes it is a serious mental issue. But Cody would never, ever act on the urges wlf gets. It is not my place to explain the reasoning as to why wlf deals with these trauma responses. I don’t know if wlf would be comfortable with me explaining that here. So I won’t. Do not harass wlf on wlf’s Atabook, because wlf does not owe you an explination. If there’s anything else you want me to address here regarding Cody or you have any questions regarding wlf, sign my Ata to ask. Please do not try to turn me against wlf. Wlf is such a close friend of mine, I love wlf so much and will stand with wlf and defend wlf through thick and thin, always. I don’t care if all 2,000 people on Ponytown hate me. I’m fine with being deemed ‘problematic’ if it means I’m protecting someone I care for. You can all fuck off. And for the people telling Cody and I to kill ourselves, cut deeper, etc. I hope you all know that saying those things to minors online is so much weirder than the reasons you tell us to do those things. Grow the fuck up.
+Case 1: First drama, Gourdy.
+
+Hey. I’m gonna address some stuff here because there’s genuinely unbelievable shit going on in this dumb fucking pony game. Firstly and most importantly, my friend Cody. So many people are mad at me for defending wlf, for multiple reasons. The primary being that wlf yumeships with Gourdy. This is an alternate universe of Gourdy, where he is aged up. ‘That doesn’t make it okay,’ or ‘That’s pred behavior’ are lots of things that have been said to us. You’re entitled to your own beliefs. But I believe that there’s no issue with it. At first I’ll admit I did find it a bit odd and did not like it, but I got to know wlf better and understand wlf’s reasoning, and it helped me realize that one, the way wlf chooses to cope is none of my business and is not harming anyone, and two, is not ‘pred behavior’ based off the circumstances.
+
+
+Second Drama, Para/Zoophilia
+
+Another thing people are angry about is that wlf is a diagnosed para/zoo. It’s so sickening to me that wlf has been so harassed over this. Before anyone comes at me about how it’s weird how I’m supporting a zoo. I want them to know some things. Firstly, it’s fucking weird to harass someone and send them death threats and shit based off of their mental state. Secondly, I do not think it is okay to be a zoo. IF YOU ARE NOT WORKING ON RECOVERING. Yes, Cody was diagnosed. Yes it is a serious mental issue. But Cody would never, ever act on the urges wlf gets. In fact, when I was defending Cody against people, I brought up that wlf has a pet dog who wlf cares for very much. Wlf had the people who were talking shit about wlf blocked, and when I brought my point up wlf immediately got upset, assuming that people were accusing wlf of hurting wlf's dog. It just further proves, wlf would never, NEVER hurt an animal. It is not my place to explain the reasoning as to why wlf deals with these trauma responses. I don’t know if wlf would be comfortable with me explaining that here. So I won’t.
+
+Do not harass wlf on wlf’s Atabook, because wlf does not owe you an explination. If there’s anything else you want me to address here regarding Cody or you have any questions regarding wlf, sign my Ata to ask. Please do not try to turn me against wlf. Wlf is such a close friend of mine, I love wlf so much and will stand with wlf and defend wlf through thick and thin, always. I don’t care if all 2,000 people on Ponytown hate me. I’m fine with being deemed ‘problematic’ if it means I’m protecting someone I care for. You can all fuck off. And for the people telling Cody and I to kill ourselves, cut deeper, etc. I hope you all know that saying those things to minors online is so much weirder than the reasons you tell us to do those things. Grow the fuck up.
+
+Case 2: coalcarolynne , death threats
 
 Below is a message sent by who I'm sure is one of Coal's goons, on Coal's ATA
 
@@ -23,9 +31,10 @@ Yeah sure dude
 <img width="1242" height="270" alt="IMG_8540" src="https://github.com/user-attachments/assets/736d8d77-8245-408f-b144-6a355abc2ad7" /><img width="1065" height="488" alt="IMG_8553" src="https://github.com/user-attachments/assets/13ef754e-6935-4e33-8b5c-ef15af2761ac" />
 
 
-This can lead us into the 'coalcarolyne' drama. To start, if you support this person or are mutuals with them please block me. They claim to be harassed and attacked 'for no reason', then actively seek out drama and arguments and cry about the consequences.
 
-My friend Cody and I DID make joke skins, mocking coal and their friend, bobette. I admit now that it was incredibly immature of us to make skins mocking them, it was petty and we probably shouldn't have done it. But then we were accused of other things, such as IMPERSONATING them (claiming to be them, which we weren't) and making fake clips (which, we also didn't). I'm not outwardly saying that Coal or Bobette made up these clips to frame us, but I don't doubt that either. All we did was sit around in the mock skins, continue talking in party chat, just sitting there. Yes, our names were a bit inappropriate. "I'm Bobet I meatride coal 24/7" was Cody's name. Once again, that was immature, we realize it now and for that part ALONE, we do apologize. Also, it led to Cody being banned for 3 days. After that happened I logged off and deleted the skin. My name was, 'I coal and i tell people to kts'. This is TRUE. One of the clips coal sent to cody is above. And the clips on the ATAbook. They ARE anonymous, but we've highly suspected it was Coal/Bobette, because they've been on Cody's ass and harassing wlf for months. ANOTHER reason, is that Coal and Bobette would not shut up about Cody 'daring to' make wlf's github public (wlf's socials were removed from ponytown due to stupid reasons regarding wlf's names AND NOT DUE TO OTHER REASONS.), so that obviously gave us reason to suspect they were on Cody's github.
+My friend Cody and I DID make joke skins, mocking coal and their friend, bobette. I admit now that it was incredibly immature of us to make skins mocking them, it was petty and we probably shouldn't have done it. But then we were accused of other things, such as IMPERSONATING them (claiming to be them, which we weren't) and making fake clips (which, we also didn't). I'm not outwardly saying that Coal or Bobette made up these clips to frame us, but I don't doubt that either.
+
+All we did was sit around in the mock skins, continue talking in party chat, just sitting there. Yes, our names were a bit inappropriate. "I'm Bobet I meatride coal 24/7" was Cody's name. Once again, that was immature, we realize it now and for that part ALONE, we do apologize. Also, it led to Cody being banned for 3 days. After that happened I logged off and deleted the skin. My name was, 'I coal and i tell people to kts'. This is TRUE. One of the clips coal sent to cody is above. And the clips on the ATAbook. They ARE anonymous, but we've highly suspected it was Coal/Bobette, because they've been on Cody's ass and harassing wlf for months. ANOTHER reason, is that Coal and Bobette would not shut up about Cody 'daring to' make wlf's github public (wlf's socials were removed from ponytown due to stupid reasons regarding wlf's names AND NOT DUE TO OTHER REASONS.), so that obviously gave us reason to suspect they were on Cody's github.
 
 Here's some more evidence, once again we think were sent by Coal-Bobette. (Also pay attention to the wording, "barks" and shit. Coal, a dog kin. It's also just the way Coal talks, in the mocking, POS way they do)
 
@@ -36,8 +45,6 @@ Here's some more evidence, once again we think were sent by Coal-Bobette. (Also 
 "I'd just kms" "Or kys" "I hope you cut deeper". Seriously what the fuck? These types of messages were being spammed on Cody's ATAbook. None of these are faked, or sent by us. We would NEVER joke about this stuff, nor frame other people for saying things like this without reason, because it's seriously sickening.
 
 https://infestedcorpse.atabook.org/ IF you want to look into it yourself.
-
-
 
 
 
@@ -58,21 +65,4 @@ My response
 It really fucking breaks my heart that wlf just replied with, 'but people won't listen'. Everyone who's said shit to wlf seriously got to wlf. I hope you all realize that now and reflect, because it seriously makes me sick and even more protective. If you read all these and still have shit to say, I don't have words. Block me, and Cody.
 
 
-This is another thing said by another friend who chose to stay anon (Plus is paraphrased), don't try to get us reveal who this was, I feel like it's a great point and deserves to be on here. 'It's funny because the fact that Cody is getting harassed for yuming with Gourdy is showing people caring for a fictional character over a real pup like wdym you're prioritizing a pumpkin over someone coping whether you find it weird or not'
-
-
-
-
-
-Last thing I want to address, this doesn't bother me much, but I'll just put it out there because it's been brought up at some point by multiple people, mostly 'aspenmoor'. I'm not adding the '@' symbol to avoid them being drawn to this.
-
-
-Also, this is directly towards the idiots who were harassing Arthur and I. By the way, we both got a kick out of it and laughed about it.
-
-1) I'm not a 'yumeshipper', I'm soulbounded with Arthur and see him as my significant other, not fictional other. Yes, I say S/O.
-2) I can and do communicate with him often. He is my husband, we've been married 3 years. I'm not delusional, if you think so that's fine.
-3) The fact that someone has said that to me is funny. 'Wouldn't that make Arthur a pred?' Reminder we are a system, I am our co-host, and in headspace I am 40. So no, my husband isn't a 'pred' lmfao
-4) I try to avoid associating with the yumeshipping community in general.
-
-
-
+This is another thing said by another friend who chose to stay anon (Plus is paraphrased), don't try to get us reveal who this was, I feel like it's a great point and deserves to be on here. 'It's funny because the fact that Cody is getting harassed for yuming with Gourdy is showing people caring for a fictional character over a real person, like wdym you're prioritizing a pumpkin over someone coping whether you find it weird or not'
