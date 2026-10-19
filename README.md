@@ -22,10 +22,7 @@ Below is a message sent by who I'm sure is one of Coal's goons, on Coal's ATA
 Below is a whisper Coal sent to Cody on PonyTown. This one was, 100%, Coal. So even if we're wrong about the ATA signs and who sent them (which i still highly doubt) this one was. Also the issue is not the slur, as we known Coal is a POC. It's them telling Cody to kill wlfgrl(wlfself)
 
 . <img width="1048" height="262" alt="IMG_8554" src="https://github.com/user-attachments/assets/61d6dc51-c4eb-48cb-a994-4e3ecf5162f2" />
-<img width="423" height="109" alt="image" src="https://github.com/user-attachments/assets/c8a8a590-d5f1-49f7-82d2-ecd323fb4fdd" />
 
-
-Yeah sure dude
 
 
 <img width="1242" height="270" alt="IMG_8540" src="https://github.com/user-attachments/assets/736d8d77-8245-408f-b144-6a355abc2ad7" /><img width="1065" height="488" alt="IMG_8553" src="https://github.com/user-attachments/assets/13ef754e-6935-4e33-8b5c-ef15af2761ac" />
