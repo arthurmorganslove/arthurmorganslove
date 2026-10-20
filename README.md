@@ -29,7 +29,6 @@ Below is a message sent by who I'm sure is one of Coal's goons, on Coal's ATA
 
 'wait people can't differentiate telling someone to hop off the game versus telling them to commit and kill themself??!?!?!?!?!  ... wow it's like pony town is the stupidest game out there, because it is. don't listen to these people ...... god bro people are just making shit up omg'
 
-Below is a whisper Coal sent to Cody on PonyTown. This one was, 100%, Coal. So even if we're wrong about the ATA signs and who sent them (which i still highly doubt) this one was. Also the issue is not the slur, as we known Coal is a POC. It's them telling Cody to kill wlfgrl(wlfself)
 
 . <img width="1048" height="262" alt="IMG_8554" src="https://github.com/user-attachments/assets/61d6dc51-c4eb-48cb-a994-4e3ecf5162f2" />
 
