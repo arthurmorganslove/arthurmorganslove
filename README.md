@@ -1,10 +1,8 @@
-Coal or anyone else please contact me if you have an issue with any of this. I will not remove anything until I'm given proper evidence regarding someone's evidence in this case.
-
-Let me start by saying I hate that I even need to make my account revolving around this. I never thought I'd be sucked so deeply into drama like this. But it got to a point where I had to step in, and got myself into all this. I do not regret it, though. Here's our side of the story. (Our, as in Jevil-Chester and Cody).
+Thank you to everyone who's sent me kind messages and apologies, but I'd appreciate if those words went to Cody. I was not attacked or threatened nearly as much as wlf, I do not deserve those kind words as much as wlf does.
 
 Case 1: First drama, Gourdy.
 
-Hey. I’m gonna address some stuff here because there’s genuinely unbelievable shit going on in this dumb fucking pony game. Firstly and most importantly, my friend Cody. So many people are mad at me for defending wlf, for multiple reasons. The primary being that wlf yumeships with Gourdy. This is an alternate universe of Gourdy, where he is aged up. ‘That doesn’t make it okay,’ or ‘That’s pred behavior’ are lots of things that have been said to us. You’re entitled to your own beliefs. But I believe that there’s no issue with it. At first I’ll admit I did find it a bit odd and did not like it, but I got to know wlf better and understand wlf’s reasoning, and it helped me realize that one, the way wlf chooses to cope is none of my business and is not harming anyone, and two, is not ‘pred behavior’ based off the circumstances.
+Wlf yumeships with Gourdy. Yes I'm aware of this. This is an alternate universe of Gourdy, where he is aged up. ‘That doesn’t make it okay,’ or ‘That’s pred behavior’ are lots of things that have been said to us. You’re entitled to your own beliefs. But I believe that there’s no issue with it. At first I’ll admit I did find it a bit odd and did not like it, but I got to know wlf better and understand wlf’s reasoning, and it helped me realize that one, the way wlf chooses to cope is none of my business and is not harming anyone, and two, is not ‘pred behavior’ based off the circumstances.
 
 
 Second Drama, Para/Zoophilia
@@ -80,3 +78,7 @@ UPDATE 1
 I will not change anything I wrote because that will take a lot of effort and work and will lead to me getting burnt out quickly, but I will add these updates as soon as they happen.
 
 Not much to add as of right now. Bobette is completely in the clear and did not send anything to Cody, except for a very sweet apology.
+
+UPDATE 2
+
+Coal removed all the things regarding us from their Github. I still want them to apologize to Cody. None of this is getting removed until we fully resolve the situation. 
