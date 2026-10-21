@@ -92,7 +92,7 @@ UPDATE 1
 
 I will not change anything I wrote because that will take a lot of effort and work and will lead to me getting burnt out quickly, but I will add these updates as soon as they happen.
 
-Not much to add as of right now. Bobette is completely in the clear and did not send anything to Cody, except for a very sweet apology.
+Not much to add as of right now. Bobette is completely in the clear and did not send anything to Cody (threats, whatever else), except for a very sweet apology.
 
 UPDATE 2
 
@@ -128,4 +128,12 @@ UPDATE 6
 
 Yeah I said no more updates buut here we are.
 
-Quick context, Bobette cut ties with Coal and the rest of the group. https://media.discordapp.net/attachments/1562535653604851782/1562592157137633361/Screenshot_2026-10-21_3.22.53_PM.png?ex=6ada8cd9&is=6ad93b59&hm=2641729134ed99fbf33143ef20f9336217e7529ae6a2ce50548f13e9965c4180&=&format=webp&quality=lossless
+Quick context, one of Coal's friends mocked
+
+Coal is now responding to this by mocking them for being groomed.
+
+<img width="813" height="531" alt="image" src="https://github.com/user-attachments/assets/797a22fe-4bf3-41fe-baca-b5c086272f92" />
+
+
+This is the evidence I have at the moment, sent by Bobette. Instead of apologizing, responding to their wrongdoing, they made fun of an ex-friend for being a victim. These things aren't jokes, they're awful things that DO happen and leave lasting scars on people. Not a laughing matter? Coal is an immature piece of shit, even more so after this. They requested to stay anon, PLEASE do not try to find out who this is, and if you know who it is please don't harass them, I can't even believe I need to say this
+
