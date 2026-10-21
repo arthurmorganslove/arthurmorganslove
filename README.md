@@ -1,6 +1,10 @@
-(10/21/26) I'M DONE UPDATING AS OF TODAY!! A LOT HAPPENED, THANK YOU EVERYONE WHO HELPED, I JUST WANT TO REST A BIT FOR TONIGHT OK? I LOVE YOU ALL!!
+'Done updating' my ass brah😂 
 
-Thank you to everyone who's sent me kind messages and apologies, but I'd appreciate if those words went to Cody. I was not attacked or threatened nearly as much as wlf, I do not deserve those kind words as much as wlf does.
+Yes, I do hate Coal. I think they're a bad person. But I do not think that they should be harassed. It is NEVER okay to send someone death threats, tell someone to kill themself, cut themself, anything like that. If you decide to switch sides, be on Cody and I's side, and turn against Coal. PLEASE, PLEASE do not send these kind of messages to Coal. As much as they've been awful to us, as well as I'm sure MANY other people, the reason I've invested so much time and effort into this Github and drama case in general is to raise awareness to harassment like this, how it affects people, etc. This is NEVER okay, so please do not attack anyone like this, I beg you. BUT I do encourage people to help get through to Coal in other ways, without being too hostile. Leave signs on their ATA and straw, let other people know about their actions. Even if you aren't capable of doing the listed things, just being here helps, so once again I thank everyone who's here.
+
+And to the people who were involved with Coal who either got out of the toxic circle or are making an effort to do so, even if it doesn't mean much I'm so so proud of you, you're all so strong and even if you did wrong before, you're admitting to doing so and striving to be better. So I'm very very proud of all of you.
+
+If any of you, or anyone at all, need anything from me, I'll be happy to  help. Please whisper me, sign my ATA, DM me, whatever. I will always be here to talk. I know this community is small and very divided, but I truly do care about everyone here, even strangers. Whether you're gay, straight, mentally ill, disabled, a victim of grooming, SA/rape, whether or not you're 'problematic' anything else not mentioned here, EVEN if you just had a long day and you need someone to rant about it with. I'll be here for you. I don't like making my discord public but I'll leave it up here temporarily, if you ever want to talk just message @ricozragged :) It's fine if you want to be anonymous as well!
 
 Case 1: First drama, Gourdy.
 
