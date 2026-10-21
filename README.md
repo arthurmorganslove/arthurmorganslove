@@ -82,3 +82,9 @@ Not much to add as of right now. Bobette is completely in the clear and did not 
 UPDATE 2
 
 Coal removed all the things regarding us from their Github. I still want them to apologize to Cody. None of this is getting removed until we fully resolve the situation. 
+
+UPDATE 3
+
+Not exactly an update but this is hilarious. Also Penn had nothing to do with any of this?? Lmfaoo doing anything but admitting you’re wrong
+
+<img width="906" height="200" alt="IMG_8558" src="https://github.com/user-attachments/assets/e2473e76-7ee1-43d9-813e-c1daf56a9f70" />
