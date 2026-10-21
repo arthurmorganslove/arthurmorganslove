@@ -30,6 +30,10 @@ Below is a message sent by who I'm sure is one of Coal's goons, on Coal's ATA
 
 . <img width="1048" height="262" alt="IMG_8554" src="https://github.com/user-attachments/assets/61d6dc51-c4eb-48cb-a994-4e3ecf5162f2" />
 
+04:40 PM[flumbo ; s-ata 💠] idk i think coal is a horrible person because she told someone who was already vulnerable to kts
+
+Clip I got from someone involved in a previous drama
+
 
 
 <img width="1242" height="270" alt="IMG_8540" src="https://github.com/user-attachments/assets/736d8d77-8245-408f-b144-6a355abc2ad7" /><img width="1065" height="488" alt="IMG_8553" src="https://github.com/user-attachments/assets/13ef754e-6935-4e33-8b5c-ef15af2761ac" />
