@@ -85,7 +85,7 @@ Coal removed all the things regarding us from their Github. I still want them to
 
 UPDATE 3
 
-Not exactly an update but this is hilarious. Also PennywisefansDNI had nothing to do with any of this? This is Coal's DNI/Blacklist updated btw. Doing anything but addressing the situation. Also notice how they're not addressing anything. Cooooowaardd
+Not exactly an update but this is hilarious. Also PennywisefansDNI had nothing to do with any of this? It wasn't involved in this drama at all. This is Coal's DNI/Blacklist updated btw. Doing anything but addressing the situation. Giving us more reason to believe you were behind all the 'kys' and 'cut deeper' comments lmfaoo I'm not gonna drop this anytime soon so you better say something Coal.. also 'pedophile pals?' There were so many more creative name opportunities dude
 
 <img width="906" height="200" alt="IMG_8558" src="https://github.com/user-attachments/assets/e2473e76-7ee1-43d9-813e-c1daf56a9f70" />
 
