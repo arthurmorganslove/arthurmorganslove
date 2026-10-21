@@ -4,7 +4,7 @@ Yes, I do hate Coal. I think they're a bad person. But I do not think that they 
 
 And to the people who were involved with Coal who either got out of the toxic circle or are making an effort to do so, even if it doesn't mean much I'm so so proud of you, you're all so strong and even if you did wrong before, you're admitting to doing so and striving to be better. So I'm very very proud of all of you.
 
-If any of you, or anyone at all, need anything from me, I'll be happy to  help. Please whisper me, sign my ATA, DM me, whatever. I will always be here to talk. I know this community is small and very divided, but I truly do care about everyone here, even strangers. Whether you're gay, straight, mentally ill, disabled, a victim of grooming, SA/rape, whether or not you're 'problematic' anything else not mentioned here, EVEN if you just had a long day and you need someone to rant about it with. I'll be here for you. I don't like making my discord public but I'll leave it up here temporarily, if you ever want to talk just message @ricozragged :) It's fine if you want to be anonymous as well!
+If any of you, or anyone at all, need anything from me, I'll be happy to  help. Please whisper me, sign my ATA, DM me, whatever. I will always be here to talk. I know this community is small and very divided, but I truly do care about everyone here, even strangers. Whether you're gay, straight, mentally ill, disabled, a victim of grooming, SA/rape, whether or not you're 'problematic' anything else not mentioned here, EVEN if you just had a long day and you need someone to rant about it with. I'll be here for you. I don't like making my discord public but I'll leave it up here temporarily, if you ever want to talk just message @ricozragged on discord :) It's fine if you want to be anonymous as well!
 
 Case 1: First drama, Gourdy.
 
@@ -123,3 +123,9 @@ Here's what the other person said! (On their ATA)
 "(Coal) called them out for randomly accusing my friend of being a weirdo, they said in chat "the pkmn oc blocked me loll" "youre 22 and talking to minors thats weird" and the "minors" they were talking about was me and my friends. were all 18 LMFAOOOO my friend didnt even block them either it was coal that blocked her and then said that but anyway i joshed around a bit while watching them argue publicly in ponytown and they all ended up putting me and my friends on their blacklist cuz of it lol theyre all drama chasers and apparently super toxic friend wise so i could care less. most of them r like. 15 tho so like whos surprised. average ponytown players"
 
 So apparently Coal REALLY likes accusing people of being preds.. Just putting it out there that cheaters like to accuse other people of cheating, if you get my gist!! 
+
+UPDATE 6
+
+Yeah I said no more updates buut here we are.
+
+Quick context, Bobette cut ties with Coal and the rest of the group. https://media.discordapp.net/attachments/1562535653604851782/1562592157137633361/Screenshot_2026-10-21_3.22.53_PM.png?ex=6ada8cd9&is=6ad93b59&hm=2641729134ed99fbf33143ef20f9336217e7529ae6a2ce50548f13e9965c4180&=&format=webp&quality=lossless
