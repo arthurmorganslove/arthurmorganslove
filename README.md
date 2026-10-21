@@ -88,3 +88,7 @@ UPDATE 3
 Not exactly an update but this is hilarious. Also PennywisefansDNI had nothing to do with any of this? This is Coal's DNI/Blacklist updated btw. Doing anything but addressing the situation. Also notice how they're not addressing anything. Cooooowaardd
 
 <img width="906" height="200" alt="IMG_8558" src="https://github.com/user-attachments/assets/e2473e76-7ee1-43d9-813e-c1daf56a9f70" />
+
+UPDATE 4
+
+An anon on my ATA informed me that Coal is talking about us and spreading the word outside of its circle. I'm not sure whether it's false or true information, but if anyone hears anything, I'd highly appreciate someone let me know exactly what they're saying. Thank you!
