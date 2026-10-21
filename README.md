@@ -106,10 +106,14 @@ UPDATE 5
 
 Today (10/21/26) has been very eventful!! Thank you everyone who's contributed to this. Especially @banbanned who helped a LOT (particularly regarding this update)
 
-I had a conversation with the github above, (a very sweet person, by the way!)
+I had a conversation with two people that are also on Coal's DNI/Blacklist
 I won't add the entire thing (if anyone wants it though, let me know) but this caught my interest.
 
 04:46 PM[flumbo ; s-ata 💠] whispers: Sorry if its totally out of place for me to ask but that one interests me the most cus she ASO called my friend a pred bc shes 22 and
 04:47 PM[flumbo ; s-ata 💠] whispers: 'hanging out with minors'
+
+Here's what the other person said! (On their ATA)
+
+"(Coal) called them out for randomly accusing my friend of being a weirdo, they said in chat "the pkmn oc blocked me loll" "youre 22 and talking to minors thats weird" and the "minors" they were talking about was me and my friends. were all 18 LMFAOOOO my friend didnt even block them either it was coal that blocked her and then said that but anyway i joshed around a bit while watching them argue publicly in ponytown and they all ended up putting me and my friends on their blacklist cuz of it lol theyre all drama chasers and apparently super toxic friend wise so i could care less. most of them r like. 15 tho so like whos surprised. average ponytown players"
 
 So apparently Coal REALLY likes accusing people of being preds.. Just putting it out there that cheaters like to accuse other people of cheating, if you get my gist!! 
