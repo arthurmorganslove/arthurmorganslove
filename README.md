@@ -1,3 +1,5 @@
+(10/21/26) I'M DONE UPDATING AS OF TODAY!! A LOT HAPPENED, THANK YOU EVERYONE WHO HELPED, I JUST WANT TO REST A BIT FOR TONIGHT OK? I LOVE YOU ALL!!
+
 Thank you to everyone who's sent me kind messages and apologies, but I'd appreciate if those words went to Cody. I was not attacked or threatened nearly as much as wlf, I do not deserve those kind words as much as wlf does.
 
 Case 1: First drama, Gourdy.
