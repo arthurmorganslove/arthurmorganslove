@@ -30,9 +30,14 @@ Below is a message sent by who I'm sure is one of Coal's goons, on Coal's ATA
 
 . <img width="1048" height="262" alt="IMG_8554" src="https://github.com/user-attachments/assets/61d6dc51-c4eb-48cb-a994-4e3ecf5162f2" />
 
+<img width="588" height="187" alt="image" src="https://github.com/user-attachments/assets/ae6ea06d-41e2-4026-b5f1-72eeda4d74a5" />
+
+
 04:40 PM[flumbo ; s-ata 💠] idk i think coal is a horrible person because she told someone who was already vulnerable to kts
 
 Clip I got from someone involved in a previous drama (used with permission!)
+
+Apparently this was edited/faked but knowing Coal there's a good chance they're lying, smh
 
 
 
@@ -96,3 +101,15 @@ Not exactly an update but this is hilarious. Also PennywisefansDNI had nothing t
 UPDATE 4
 
 An anon on my ATA informed me that Coal is talking about us and spreading the word outside of its circle. I'm not sure whether it's false or true information, but if anyone hears anything, I'd highly appreciate someone let me know exactly what they're saying. Thank you!
+
+UPDATE 5
+
+Today (10/21/26) has been very eventful!! Thank you everyone who's contributed to this. Especially @banbanned who helped a LOT (particularly regarding this update)
+
+I had a conversation with the github above, (a very sweet person, by the way!)
+I won't add the entire thing (if anyone wants it though, let me know) but this caught my interest.
+
+04:46 PM[flumbo ; s-ata 💠] whispers: Sorry if its totally out of place for me to ask but that one interests me the most cus she ASO called my friend a pred bc shes 22 and
+04:47 PM[flumbo ; s-ata 💠] whispers: 'hanging out with minors'
+
+So apparently Coal REALLY likes accusing people of being preds.. Just putting it out there that cheaters like to accuse other people of cheating, if you get my gist!! 
