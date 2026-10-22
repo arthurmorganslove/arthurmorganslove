@@ -155,3 +155,19 @@ Also, these are ATAbook signs from their perspective, obviously the IP’s are b
 <img width="1005" height="478" alt="IMG_0594" src="https://github.com/user-attachments/assets/32d935fe-5dbd-4641-8197-366527920d8c" />
 <img width="1024" height="570" alt="IMG_0592" src="https://github.com/user-attachments/assets/c2882c63-7c41-4a8e-b472-7e23ab8eaad8" />
 
+UPDATE 9
+
+Oh Coal’s racist too guys what a surprise
+
+“i was really upset cuz it was obvious that they didn't speak english and the bobette was like "no no love" and as someone who's first lang wasn't english when i was a kid it really pissed me off
+
+coal was harrassing them because the bobette had a mistletoe accessory on and was with their coal friend, and when the bobette tried explaining (in broken english btw) coal was like "dni dni freak dni"”
+<img width="1688" height="1509" alt="IMG_0600" src="https://github.com/user-attachments/assets/59b57a38-0235-4b11-9be8-c9176d5a365b" />
+
+Whisper chats between two anons discussing the situation 
+
+Honorable mention (forwarded by anon)
+
+“COALCAROLYNNE (please get the fuck off pony town for like a week and go touch grass. there are better things in life then constantly arguing with ppl on there. go out for some lunch with your irls or something.)”
+
+-Inky, who very much wanted to know that this was said by them lmfao
