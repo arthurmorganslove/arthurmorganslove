@@ -43,7 +43,11 @@ I could go on about things that seem off about Coal’s doc but I want to addres
 This is EXACTLY what Coal and their goons attacked Maggot for?? And the whole ‘even after their bad actions’?? What bad actions?Is it me spreading awareness? I don’t even know at this point 
 
 
-Last thing before I go back to bed because I’m very sick at the moment lmaoo 
+UPDATE 11 
+
+Andre made a response doc to what Coal said, going deeper into the list above. Please read it
+
+https://docs.google.com/document/d/1aq2bPBF2xQqlXC604J76lNNayJIemS8TSIvSaOkLS70/edit?tab=t.0
 
 The people signing my ATA and defending Coal for being mentally unwell. I’m seriously confused at this point. Because Coal, defending themself, mocked Andre for their mental state, and everyone else involved? So mental health doesn’t matter unless it’s Coal, according to you all.
 
