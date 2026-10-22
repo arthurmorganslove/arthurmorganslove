@@ -1,6 +1,6 @@
 i gen feel so fucking bad for you i never thought andre was THAT type of person.
 
-pls i cant stop snickering abt this (DWYURI BTW)
+guys im sick and will b updating more seldomely 2day ok? forgiv me
 
 
 UPDATE 10
@@ -49,6 +49,4 @@ Andre made a response doc to what Coal said, going deeper into the list above. P
 
 https://docs.google.com/document/d/1aq2bPBF2xQqlXC604J76lNNayJIemS8TSIvSaOkLS70/edit?tab=t.0
 
-The people signing my ATA and defending Coal for being mentally unwell. I’m seriously confused at this point. Because Coal, defending themself, mocked Andre for their mental state, and everyone else involved? So mental health doesn’t matter unless it’s Coal, according to you all.
 
-Sorry I’m not adding more once again I’m sick and on my fucking deathbed 😭 trying my best to keep up with this situation yall forgive me
