@@ -144,4 +144,16 @@ Another whisper that shares a lot of information. Once again this person wishes 
 
 “I caught the party message that I got sent in this group that coal made . it gen weirded me out, also, coal keeps making fun of disorders such as wonderland system jokes (around other systems btw), making fun of episodes and etc. coal is making fun of things people cannot control, and I'm tired of watching it. my friend even tried confronting coal to act better and not be so confrontational and they simply said I don't see why calling out bad people is wrong, its not just that, its that they go WAY too far, especially with the mocking stuff”
 
-Thank you, anon :) And thank you to everyone else who keeps me updated and helps me raise awareness and share information with others. I can’t thank you all enough, I truly appreciate it from the bottom of my heart. <3
+Thank you, anon :) And thank you to everyone else who keeps me updated and helps me raise awareness and share information with others. I can’t thank you all enough, I truly appreciate it from the bottom of my heart.
+
+UPDATE 8
+
+I’m getting updates rapidly from people who were brave enough to share their awful experience with Coal and how she treated them. This is the person Coal is framing on their GitHub currently. Claiming that they ‘suicide baited’, and other things that very likely did NOT happen. This is @minibuh on here, they want people to know how Coal treated them and were willing to be titled on here. Do NOT harass this person in any way, they do not deserve it.
+
+Also, these are ATAbook signs from their perspective, obviously the IP’s are blurred out, now that I think about it I should’ve color coded them I might redo that tomorrow.
+
+<img width="1024" height="573" alt="IMG_0593" src="https://github.com/user-attachments/assets/2e60ccfc-1e5f-4a21-aac6-e6308eb84f98" />
+<img width="1006" height="738" alt="IMG_0595" src="https://github.com/user-attachments/assets/6236864d-9780-4bd4-96a1-a7b6758f7b38" />
+<img width="1005" height="478" alt="IMG_0594" src="https://github.com/user-attachments/assets/32d935fe-5dbd-4641-8197-366527920d8c" />
+<img width="1024" height="570" alt="IMG_0592" src="https://github.com/user-attachments/assets/c2882c63-7c41-4a8e-b472-7e23ab8eaad8" />
+
