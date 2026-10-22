@@ -1,3 +1,8 @@
+i gen feel so fucking bad for you i never thought andre was THAT type of person.
+
+pls i cant stop snickering abt this (DWYURI BTW)
+
+
 UPDATE 10
 
 https://docs.google.com/document/d/1rmbjnKEKJkS0YnADnxuYgQeMGJ-KXriKmq5I6Hc7zk4/edit?usp=drivesdk
