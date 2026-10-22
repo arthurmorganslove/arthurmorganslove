@@ -13,6 +13,22 @@ Coal’s claims.
 
 What it looks like is that Coal is nitpicking things to seem innocent and/or force the blame onto others. Making these claims about someone without giving ANY context or their side of the story is just insane on its own. Especially, brcause Andre seems like such a sweet person who tried their best to support Coal even in such a dark time. I might add to this part later, keep in mind I’m half asleep and I’m really sorry about that
 
+MORE DETAILED/UPDATED VERSION OF THE LIST
+
+> mocking myself for being a grooming victim
+- i was mocking somebody who said i was larping being a darkshipper while at the time i was actively being groomed, it was coal who mocked the actual grooming victim part itself
+
+> encouraging her to get on wpd
+- she used wpd in her own spare time entirely on her own accord, shed even boast to me about being a chronic user
+
+> encouraging her to relapse
+- i made "abc to cut myself" jokes in reference to MYSELF, had nothing to do with her, shed even respond back with abc
+
+> encouraging her to set a planned suicide date
+- was entirely on her own accord, i had my own separate date and it was only after mine did she set hers
+
+  
+
 Other thing I want to say
 
 I could go on about things that seem off about Coal’s doc but I want to address this sentence first (sent by Penn thanks)
