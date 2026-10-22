@@ -170,4 +170,4 @@ Honorable mention (forwarded by anon)
 
 “COALCAROLYNNE (please get the fuck off pony town for like a week and go touch grass. there are better things in life then constantly arguing with ppl on there. go out for some lunch with your irls or something.)”
 
--Inky, who very much wanted to know that this was said by them lmfao
+-Inky/Venus, @luiceren on GitHub! They realllyy wanted everyone to know they said this 🥹
