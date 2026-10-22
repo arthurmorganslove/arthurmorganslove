@@ -1,4 +1,4 @@
-'Done updating' my ass brah😂 
+
 
 Yes, I do hate Coal. I think they're a bad person. But I do not think that they should be harassed. It is NEVER okay to send someone death threats, tell someone to kill themself, cut themself, anything like that. If you decide to switch sides, be on Cody and I's side, and turn against Coal. PLEASE, PLEASE do not send these kind of messages to Coal. As much as they've been awful to us, as well as I'm sure MANY other people, the reason I've invested so much time and effort into this Github and drama case in general is to raise awareness to harassment like this, how it affects people, etc. This is NEVER okay, so please do not attack anyone like this, I beg you. BUT I do encourage people to help get through to Coal in other ways, without being too hostile. Leave signs on their ATA and straw, let other people know about their actions. Even if you aren't capable of doing the listed things, just being here helps, so once again I thank everyone who's here.
 
@@ -137,3 +137,11 @@ Coal is now responding to this by mocking them for being groomed.
 
 This is the evidence I have at the moment, sent by Bobette. Instead of apologizing, responding to their wrongdoing, they made fun of an ex-friend for being a victim. These things aren't jokes, they're awful things that DO happen and leave lasting scars on people. Not a laughing matter? Coal is an immature piece of shit, even more so after this. They requested to stay anon, PLEASE do not try to find out who this is, and if you know who it is please don't harass them, I can't even believe I need to say this
 
+
+UPDATE 7
+
+Another whisper that shares a lot of information. Once again this person wishes to stay anon, please do not try to figure out who this is, and if you know who it is do not harass them.
+
+“I caught the party message that I got sent in this group that coal made . it gen weirded me out, also, coal keeps making fun of disorders such as wonderland system jokes (around other systems btw), making fun of episodes and etc. coal is making fun of things people cannot control, and I'm tired of watching it. my friend even tried confronting coal to act better and not be so confrontational and they simply said I don't see why calling out bad people is wrong, its not just that, its that they go WAY too far, especially with the mocking stuff”
+
+Thank you, anon :) And thank you to everyone else who keeps me updated and helps me raise awareness and share information with others. I can’t thank you all enough, I truly appreciate it from the bottom of my heart. <3
