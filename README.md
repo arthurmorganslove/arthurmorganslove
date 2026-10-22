@@ -15,6 +15,17 @@ To the people who were involved with Coal who either got out of the toxic circle
 
 If any of you, or anyone at all, need anything from me, I'll be happy to  help. Please whisper me, sign my ATA, DM me, whatever. I will always be here to talk. I know this community is small and very divided, but I truly do care about everyone here, even strangers. Whether you're gay, straight, mentally ill, disabled, a victim of grooming, SA/rape, whether or not you're 'problematic' anything else not mentioned here, EVEN if you just had a long day and you need someone to rant about it with. I'll be here for you. I don't like making my discord public but I'll leave it up here temporarily, if you ever want to talk just message @ricozragged on discord :) It's fine if you want to be anonymous as well!
 
+Inky/Venus, @luiceren on GitHub, writing to Coal (below)
+
+<p>Dear Domo / Coal.</p>
+<pPlease get the fuck off Pony Town for a week (preferably more) and go touch some grass. There are way better things in life than to CONSTANTLY arguing with people on this stupid pixel pony game.</p> 
+<p>I have only recently rejoined PT after a 2-3 year hiatus, and every time I have seen you online you’re either arguing with someone or just copying and pasting someone’s messages in chat to mock them publicly with your stupid lackeys, whether be it your actual friends who are trying to support your shitty actions or just some random people. (i have only been here for a good 5 days by the way)</p> 
+<p>This is not a good look for someone. You have made a bunch of people uncomfortable/stressed out with your actions, and despite everything you STILL keep on going and going with your selfish drama-driven bullshit. Your friends are literally leaving you one by one because they’ve had enough of you.</p>
+<p>Please go get some help, because despite everything a lot of people including myself are still worried for you. I wouldn’t know what to do if I was in this situation but please at least just get off the game for a while bro. If you knew you were already unwell then why even get on in the first place and continue with all this, it still isn't right nor it justifies you harassing people.</p>
+<p>Go hang out with your irl friends/family or something, go out to lunch/dinner with them or even go to a concert to just enjoy life. Even just getting a simple stupid job would even help your case probably. You are 18. Act like it.</p> 
+<p><h6>(ps. i still remember when you called my finn skin fugly; the only thing that’s fugly is your nasty attitude to everyone LMFAO)</h6></p>
+
+
 Case 1: First drama, Gourdy.
 
 Wlf yumeships with Gourdy. Yes I'm aware of this. This is an alternate universe of Gourdy, where he is aged up. ‘That doesn’t make it okay,’ or ‘That’s pred behavior’ are lots of things that have been said to us. You’re entitled to your own beliefs. But I believe that there’s no issue with it. At first I’ll admit I did find it a bit odd and did not like it, but I got to know wlf better and understand wlf’s reasoning, and it helped me realize that one, the way wlf chooses to cope is none of my business and is not harming anyone, and two, is not ‘pred behavior’ based off the circumstances.
@@ -174,9 +185,3 @@ coal was harrassing them because the bobette had a mistletoe accessory on and wa
 <img width="1688" height="1509" alt="IMG_0600" src="https://github.com/user-attachments/assets/59b57a38-0235-4b11-9be8-c9176d5a365b" />
 
 Whisper chats between two anons discussing the situation 
-
-Honorable mention (forwarded by anon)
-
-“COALCAROLYNNE (please get the fuck off pony town for like a week and go touch grass. there are better things in life then constantly arguing with ppl on there. go out for some lunch with your irls or something.)”
-
--Inky/Venus, @luiceren on GitHub! They realllyy wanted everyone to know they said this 🥹
