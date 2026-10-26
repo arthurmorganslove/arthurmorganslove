@@ -1,6 +1,4 @@
-i gen feel so fucking bad for you i never thought andre was THAT type of person.
-
-guys im sick and will b updating more seldomely 2day ok? forgiv me
+currently on break from this shitshow
 
 
 UPDATE 10
